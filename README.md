@@ -1,5 +1,5 @@
-## hello
-
+[## hello
+](https://komarev.com/ghpvc/?username=ghostycapgras&color=green)
 <!--
 **ghostycapgras/ghostycapgras** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
