@@ -1,4 +1,4 @@
-<img src="https://komarev.com/ghpvc/?username=ghostycapgras&color=rainbow" alt="Счетчик просмотров профиля GitHub">
+<img src="https://komarev.com/ghpvc/?username=ghostycapgras&color=black" alt="Счетчик просмотров профиля GitHub">
 <!--
 **ghostycapgras/ghostycapgras** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
