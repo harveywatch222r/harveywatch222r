@@ -11,7 +11,7 @@ hello! wip
 pls don't be mad that i still cant finish strawpage🙂‍↕️. i hate my provider!
 ***
 heres my main dni list!
-1) trans/homo/quuerphobia
+1) trans-homo-quuerphobia
 2) msi antics ; u think jimmy is groomer ; and so on. guys, i had a strong hyperfixation on MSI for about 7-8 years - they were literally the foundation of my entire personality. and i wont be pleased if u insult them right in front of me or smthing.
 3) MAP / AAP person
 4) w*lbur supports. i used to be like that, but after looking into the situation, i realized that i was wrong ^_^
