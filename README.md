@@ -22,3 +22,4 @@ heres my main dni list!
  will be replenished...
 <img width="352" height="89" alt="Снимок экрана 2025-12-16 085545" src="https://github.com/user-attachments/assets/7b007956-9ba9-4bad-aaeb-d955cfd152de" />
 <img width="363" height="286" alt="Снимок экрана 2025-12-16 170441" src="https://github.com/user-attachments/assets/13269c48-4857-43c7-91bb-868e46a165fc" />
+<img width="521" height="607" alt="Снимок экрана 2025-12-17 082257" src="https://github.com/user-attachments/assets/a72822fb-b6f7-48ec-a131-4c382e94e051" />
