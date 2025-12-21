@@ -20,3 +20,6 @@ heres my main dni list!
 7) constant reminder of my past and so on. if we communicate for a long time, and u constantly remind me of my past, ill freely block u.
 
  will be replenished...
+***
+
+# *PLEASE. IF WE BECOME FRIENDS AND YOU HAVE DRAMA WITH SOMEONE, DON'T BRING ME INTO IT. DON'T SAY "DON'T TALK TO THEM, THEY..." AND SO ON. I TALK TO THOSE I LIKE AS LONG AS THEY DON'T VIOLATE MY DNI-LIST.
