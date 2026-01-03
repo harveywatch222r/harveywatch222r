@@ -28,7 +28,7 @@ heres my main dni list!
 
 
 
- will be replenished...
+ will be replenished....
 
         PLEASE. IF WE BECOME FRIENDS AND YOU HAVE DRAMA WITH SOMEONE, DON'T BRING ME INTO IT. DON'T SAY "DON'T TALK TO THEM, THEY..." AND SO ON. I TALK TO THOSE I LIKE AS LONG AS THEY DON'T VIOLATE MY DNI-LIST.
                         does not relate to the drama of Loki and his friend*
