@@ -31,11 +31,17 @@ heres my main dni list!
 ![3675b8da362e8fa5f38b4a2feed84ac7](https://github.com/user-attachments/assets/5d8d19ae-3291-49c6-81ca-2ed6189b8dfe)
 
 By the way, I always support victims, as long as it doesn't involve my hyperfixations (the same MSI), so if you've been accused of something, please don't be surprised if I stop talk with you.
+
 I use a translator to write complex sentences, so there will sometimes be delays in responses. :p
+
 And sometimes I'm TOO LAZY to edit messages. But I don't write with periods!
+
 I like to create AUs related to my hyperfixations/songs (like Will Wood) and Marvel. I love DC and Marvel, especially Gotham.
+
 By the way, I really love making friends!! Please feel free to join me, even if my nickname doesn't have C+H. Or, if I don't specify anything else, like DNI, etc.
-Please subscribe to my atabook :з.
+
+Please subscribe to my atabook :з. 
+
 And my Discord isn't working, simply because my VPN isn't working. But it will be fixed soon, as I'll pay for it... Anyway, my DS: russiandepute2369
 
 
