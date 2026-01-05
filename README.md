@@ -64,7 +64,7 @@ i love yapping about rats and my will wood au A LOT. tell me if u uncomfortable!
 
 <p align="center"><strong>i love my friends btw</strong></p>
 
-<img width="849" height="296" alt="image" src="https://github.com/user-attachments/assets/fb3ed755-e9a7-4e84-bfdd-611e3c9bd02a" />
+    <img width="849" height="296" alt="image" src="https://github.com/user-attachments/assets/fb3ed755-e9a7-4e84-bfdd-611e3c9bd02a" />
 
 
 $$
