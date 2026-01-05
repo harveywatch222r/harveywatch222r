@@ -74,9 +74,3 @@ $$
 \color{white}\textbf{I’ll take you out easy, like tagging my little brother (He's weak).}
 \end{gathered}
 $$
-
-<p align="center">
-  <a href="www.youtube.com">
-    <img src="img.youtube.com" width="600">
-  </a>
-</p>
