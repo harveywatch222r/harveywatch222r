@@ -76,3 +76,9 @@ $$
 \color{blue}\textbf{I’ll take you out easy, like tagging my little brother (He's weak).}
 \end{gathered}
 $$
+
+
+https://github.com/user-attachments/assets/6bc3d69e-1f63-40c2-84ee-17a4ba3af740
+
+
+
