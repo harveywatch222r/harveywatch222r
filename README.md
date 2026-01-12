@@ -58,6 +58,8 @@ And when I play on my phone, I go AFK.
 
 i love yapping about rats and my will wood au A LOT. tell me if u uncomfortable!
 
+my hcurrent hyperfixations is **MARVEL**, Gotham and ***STRANGER THINGS***. i love it. 
+
 ---
 
 
