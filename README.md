@@ -1,3 +1,5 @@
+i love stealing cherrys, grapes, etc
+
 ![31d3903e5a0d339990df68e9e042afa9](https://github.com/user-attachments/assets/2cd8fd45-7628-4fca-bd56-426a1d0b8a07)
 
 <div align="center">
