@@ -39,6 +39,8 @@ my hcurrent hyperfixations is **MARVEL**, ****WILL WOOD**** and ***STRANGER THIN
 
 did u know im not deadpool kinnie/local 
 
+PLS TELL ME IF U FEEL UNCOMFORTABLE WHEN I NEED TO STFU IN SRS WAY!!!!! i say a lot of weird shit!!!!!
+
 # ***My social battery drains in literally 10-20 minutes and sometimes takes a very long time to charge. Please take this into account.***
 ---
 
