@@ -51,24 +51,5 @@ PLS TELL ME IF U FEEL UNCOMFORTABLE WHEN I NEED TO STFU IN SRS WAY!!!!! i say a 
 
 <img width="849" height="296" alt="image" src="https://github.com/user-attachments/assets/fb3ed755-e9a7-4e84-bfdd-611e3c9bd02a" />
 
-
-$$
-\begin{gathered}
-\color{red}\textbf{Famous but talentless—who the fuck you think you are, Martin Garrix?} \\
-\color{white}\textbf{I’ll make you cry like I’m some drunk (Boo-hoo).} \\
-\color{blue}\textbf{I’ll take you out easy, like tagging my little brother (He's weak).}
-\end{gathered}
-$$
-
-
-https://github.com/user-attachments/assets/6bc3d69e-1f63-40c2-84ee-17a4ba3af740
-
-$$ \color{#FF00FF}{\textbf{За\ патроном\ будет\ дым,\ за\ тобою\ поводырь}} $$
-$$ \color{#08E8DE}{\textbf{У\ тебя\ все\ на\ мази,\ да,\ сосешь\ -\ палец\ оттопырь}} $$
-$$ \color{#800039}{\textbf{За\ патроном\ будет\ дым,\ за\ тобою\ поводырь}} $$
-$$ \color{#00008B}{\textbf{У\ тебя\ все\ на\ мази,\ да,\ сосешь\ -\ палец\ оттопырь}} $$
-
-           /lyrics. DK - PRAXX
-
 # NYX JUST A BABY!!!!!!!!!!!!!! #fuckskinstealer!!!
 
