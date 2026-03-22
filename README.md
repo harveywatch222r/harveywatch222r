@@ -14,6 +14,8 @@ dni <img width="408" height="133" alt="Снимок экрана 2026-01-03 0922
 
 ![3675b8da362e8fa5f38b4a2feed84ac7](https://github.com/user-attachments/assets/5d8d19ae-3291-49c6-81ca-2ed6189b8dfe)
 
+**Homestuck FD, don't even fucking subscribe to my GitHub. I'll ban you instantly. If my nickname says "HOMESTUCK - DNFI" but I'm wearing the Eridan skin, that means I'm just wearing a skin that's 2 or 3 years old. I haven't been in the fandom for a long time.**
+
 By the way, I always support victims, as long as it doesn't involve my hyperfixations (the same MSI), so if you've been accused of something, please don't be surprised if I stop talk with you.
 
 I use a translator to write complex sentences, so there will sometimes be delays in responses. :p
