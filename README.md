@@ -1,6 +1,6 @@
   <img src="https://komarev.com/ghpvc/?username=HarveyWatch222r&color=gray" alt="Счетчик просмотров профиля GitHub">
 
-дни ПОЛИНА И ИТОМИ THIS GUYS STINKS OF POO DNINDINDINDIDNDIDIIDDNIDNDINIDNIDNIDIDII
+# *дни ПОЛИНА И ИТОМИ THIS GUYS STINKS OF POO DNINDINDINDIDNDIDIIDDNIDNDINIDNIDNIDIDII*
 
 привет! этот гитхаб я специально сдлелала для русервера, поэтому стараний тут будет 0, так как мне лень кодить. 
 
